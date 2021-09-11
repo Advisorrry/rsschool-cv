@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Advisorrry.github.io/rsschool-cv/cv
