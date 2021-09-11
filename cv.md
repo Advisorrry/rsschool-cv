@@ -1,5 +1,3 @@
-# cv
-
 # Aleksandr Bell👨‍💻
 
 ---
